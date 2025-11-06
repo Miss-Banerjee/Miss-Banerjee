@@ -1,6 +1,6 @@
 # Hi 👋, I'm ✶✷  🎀  𝑀𝒾𝓈𝓈 𝐵𝒶𝓃𝑒𝓇𝒿𝑒𝑒  🎀  ✷✶
 
-### A Passionate Cybersecurity Expert
+### A Professional Cybersecurity Expert
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
